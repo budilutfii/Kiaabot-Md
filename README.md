@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https(hilangkan)://telegra.ph/file/1fd5073f1a79e0ac74e42.jpg" alt="SHIRAORI BOT" width="500"/>
+<img src="https(hilangkan)://telegra.ph/file/1fd5073f1a79e0ac74e42.jpg" alt="INI FAKE FOTO" width="500"/>
 
 
 </p>
